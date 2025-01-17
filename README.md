@@ -1,1 +1,1 @@
-These are the steps to Make a Ecoomerce website
+These are the steps to Make a Ecommerce website
